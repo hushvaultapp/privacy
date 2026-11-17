@@ -1,0 +1,2 @@
+# privacy
+Hushvault privacy policy
